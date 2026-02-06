@@ -8,4 +8,4 @@ Eu ouvindo BK:
  
 ![Jayyy0223GIF](https://github.com/user-attachments/assets/d8772d29-95e2-49b5-a3f5-f1e85e70cbf1)
 
-#### 💼Meu E-Mail alexandrencarr1@gmail.com 
+#### 💼Meu E-Mail - alexandrencarr1@gmail.com 
